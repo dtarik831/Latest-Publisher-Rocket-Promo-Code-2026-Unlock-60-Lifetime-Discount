@@ -1,3 +1,5 @@
+# **Latest Publisher Rocket Promo Code (2026) Unlock 60% Lifetime Discount**
+
 The best active **Publisher Rocket discount** right now gives you lifetime access to the software for as low as $97–$199 — a saving of up to 60% off the regular price. Publisher Rocket (formerly KDP Rocket) is a one-time purchase with no monthly fees and free lifetime updates, making even the full price a strong value for serious self-published authors on Amazon KDP.
 
 [Claim Publisher Rocket Discount](https://publisherrocket.com/)
