@@ -4,7 +4,7 @@ The best active **Publisher Rocket discount** right now gives you lifetime acces
 
 Publisher Rocket (formerly KDP Rocket) is a one-time purchase with no monthly fees and free lifetime updates, making even the full price a strong value for serious self-published authors on Amazon KDP.
 
-[Claim Publisher Rocket Discount](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/?ref=mystrik)
+[Claim Publisher Rocket Discount](https://publisherrocket.com/?ref=mystrik&affiliate=bloggervoice)
 
 ## **Latest Publisher Rocket Coupons & Discounts (2026)**
 
